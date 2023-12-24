@@ -18,7 +18,6 @@ My stack:
 -PowerPoint
 
 Additional skills:
-
 <br>
 -Native Russian speaker :white_check_mark:
 <br>
