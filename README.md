@@ -18,6 +18,9 @@ My stack:
 -PowerPoint
 
 Additional skills:
+
+<br>
+-Native Russian speaker :white_check_mark:
 <br>
 -C1 English :red_circle: :red_circle: :red_circle: :red_circle: :red_circle:  :white_circle:
 <br>
