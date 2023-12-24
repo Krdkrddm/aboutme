@@ -27,4 +27,4 @@ Additional skills:
 <br>
 -Work expirience in logistics :ship:
 <br>
--General marketing knowladge :bar_chart:
+-General marketing knowledge :bar_chart:
